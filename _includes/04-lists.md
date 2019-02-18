@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+1. Get more sleep 
+2. Eat healthier
+3. Do your homework
+:+1:
